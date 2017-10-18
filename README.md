@@ -1,2 +1,0 @@
-# terryFung-tutor
-for fun :)
